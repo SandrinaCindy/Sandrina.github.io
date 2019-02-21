@@ -1,1 +1,1 @@
-# sandrina-cindy.github.io
+# SandrinaCindy.github.io
